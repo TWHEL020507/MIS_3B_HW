@@ -8,4 +8,4 @@
 
 ![](papi.jpg)
 
-[![2013 World Series Highlights](https://img.youtube.com/vi/=GOXoC34bBMo/0.jpg)](https://www.youtube.com/watch?v=GOXoC34bBMo)
+[![2013 World Series Highlights](https://img.youtube.com/vi/GOXoC34bBMo/0.jpg)](https://www.youtube.com/watch?v=GOXoC34bBMo)
